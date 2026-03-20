@@ -1,9 +1,11 @@
+IMPORTANT - This is a not commercial project, it was made for purely entretainment and learning, I don't have the license of any of this songs nor music
+
 Song and Music Credits:
 
-Boss Theme Remix - Acid-Notation (krtd)
+Boss Theme Remix - Acid-Notation (krtd)(Kirby's Boss Theme Remix)
 
 Do this Thing - Haezer
 
 MYBAD! - Grioten x Ethan Ross x Sayfalse x SaintRxse
 
-YOU FUCKERS WERE ASKING FOR THIS ONE - Rav (prod. Ljones)((Bic Runga))
+YOU FUCKERS WERE ASKING FOR THIS ONE - Rav (prod. Ljones)(Listening to the weather - Bic Runga)
